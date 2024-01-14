@@ -1,1 +1,1 @@
-![image](https://github.com/AbdelTheGoat/Widget/assets/155133525/522f1694-eb4d-4699-855b-dd470828d32c)
+https://github.com/AbdelTheGoat/Widget/blob/main/81DDFB4E-AAD3-49DB-8C37-ADAE01D01680.jpeg?raw=true
